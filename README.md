@@ -1,4 +1,4 @@
-## Hi there 👋
+## SALVEEEEEEEEEEEE
 
 <!--
 **GuilhermeTereza/GuilhermeTereza** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -14,3 +14,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+![a0b5ea468a652f97b87766f225b51ef3](https://github.com/GuilhermeTereza/GuilhermeTereza/assets/169209638/cf9423f2-484b-4161-a168-c32ecb441b83)
